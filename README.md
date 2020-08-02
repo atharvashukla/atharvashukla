@@ -1,3 +1,1 @@
-# Atharva Shukla
-
-🌊
+# 🌊
